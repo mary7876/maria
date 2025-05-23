@@ -1,3 +1,5 @@
+УСР: https://drive.google.com/drive/folders/1l8QY_kDdoaSBi1c2Hx0tTQSnyd-aPFlX?usp=sharing
+
 **1 Лабораторная**
 
 ### 1. Цель работы  
